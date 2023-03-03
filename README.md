@@ -25,6 +25,13 @@ PROCEDIMIENTO:
 ![image](https://user-images.githubusercontent.com/116833736/222767242-8891c728-01c8-429c-9538-c31f6335644c.png)
 ![image](https://user-images.githubusercontent.com/116833736/222767379-00d4434f-340a-434a-b5bd-8882d6f4bcee.png)
 ![image](https://user-images.githubusercontent.com/116833736/222767397-6b2bb39b-bcc8-4b11-80d4-6114eee54cc6.png)
+![image](https://user-images.githubusercontent.com/116833736/222769893-0cffbec2-1701-45fd-a79a-54e2bbe2986c.png)
+![image](https://user-images.githubusercontent.com/116833736/222769906-23e918e1-4589-49ce-802b-b3d39c287554.png)
+![image](https://user-images.githubusercontent.com/116833736/222769921-33986444-5c9a-4973-911b-078b09ae26f5.png)
+![image](https://user-images.githubusercontent.com/116833736/222770081-2fc5227b-9a22-4055-849b-7c59718dde89.png)
+![image](https://user-images.githubusercontent.com/116833736/222770082-adde437c-5f34-4a9f-a815-791fb373238b.png)
+![image](https://user-images.githubusercontent.com/116833736/222770326-17c75412-8dc6-4bbd-a4e0-126d35de35dc.png)
+![image](https://user-images.githubusercontent.com/116833736/222770419-bbb037a9-c643-4af4-8995-419a2bebe4d2.png)
 
 CONCLUSIONES:
 
